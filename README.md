@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @M7mdddibrahim
+- 👋 Hi, I’m Mohamed Ibrahim Mohamed 
 - 👀 I’m interested in Biomedical Engineering
 - 🌱 I’m currently learning Biomedical Engineering at CUFE
 - 📫 How to reach me mohamed.alhussini03@eng-st.cu.edu.eg
